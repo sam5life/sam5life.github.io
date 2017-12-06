@@ -1,3 +1,3 @@
 # sam5life.github.io
 i like avocados
-<img src="https://i.ytimg.com/vi/VRiWE1l8KqI/maxresdefault.jpg">
+<img src="https://i.pinimg.com/736x/3c/d4/80/3cd4801c2da3b35a95a8d1b402a7684f.jpg">
